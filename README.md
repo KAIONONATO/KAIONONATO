@@ -1,4 +1,3 @@
 ## opa, bem vindo ao meu perfil, n sei oq to fazendo aqui , é aula de pensamento computacional, to sendo obrigado a fazer esse bagaça
 
-
-![](https://github.com/user-attachments/assets/ab612b9b-2d5e-4052-a596-602100cd74a6)
+![](https://github.com/user-attachments/assets/77227176-e0b5-442b-bf58-eadf787a5ac5)
