@@ -3,4 +3,4 @@
 <!--
 **KAIONONATO/KAIONONATO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-![](https://media.tenor.com/TV0-aU0hMrgAAAAi/wink-flirt.gif)
+![image](https://github.com/user-attachments/assets/ab612b9b-2d5e-4052-a596-602100cd74a6)
